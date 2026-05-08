@@ -1,4 +1,4 @@
-
+vip Automation for Fantastical for macOS - note encryption and calendar integration is the best Fantastical for macOS automation, featuring note encryption and calendar
 
 
 
